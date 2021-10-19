@@ -1,3 +1,3 @@
 # CRG-Java
-Discord: https://discord.gg/aBdKe6Pe
+Discord: https://discord.gg/yyzBbxxcyv
 Java začiatočníci
